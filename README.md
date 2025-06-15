@@ -1,2 +1,0 @@
-# wede5020assignment
- 
